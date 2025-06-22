@@ -1,0 +1,1 @@
+# gakuen-love-legal
